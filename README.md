@@ -216,4 +216,4 @@ iDeaS is offered as a full free version with all features and updates included, 
 Get ready to dive into your favorite Nintendo DS games today! **Download iDeaS for free and unleash the fun on your PC!**
 
 ---
-**Last updated:** 2026-11-06 18:51:29 UTC
+**Last updated:** 2026-11-06 23:38:05 UTC
